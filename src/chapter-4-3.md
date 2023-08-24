@@ -1,5 +1,3 @@
-Providing Feedback and Coaching for Continuous Improvement
-========================================================================================================
 
 To develop high-performance teams, it's essential to provide team members with feedback and coaching that can help them continuously improve. In this chapter, we will discuss the strategies that can help managers provide effective feedback and coaching to their team members.
 

@@ -1,5 +1,3 @@
-Chapter 5: Building a High-Performance Culture
-==============================================
 
 Building a high-performance culture is critical for achieving sustained success in the organization. In this chapter, we will explore strategies for creating a culture of excellence, fostering employee engagement and motivation, encouraging innovation and creativity, and nurturing a learning and development culture.
 

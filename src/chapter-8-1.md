@@ -1,5 +1,3 @@
-Strategies for Sustaining a High-Performance Team
-================================================================================================
 
 Sustaining a high-performance team is critical for achieving long-term success in the workplace. In this chapter, we will explore strategies for maintaining high-performance teams, including ongoing communication and collaboration, continuous learning and development, and creating a culture of accountability and excellence.
 

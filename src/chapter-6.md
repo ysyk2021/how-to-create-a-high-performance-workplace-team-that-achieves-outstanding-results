@@ -1,5 +1,3 @@
-Chapter 6: Leading High-Performance Teams
-=========================================
 
 Leadership plays a crucial role in building and sustaining high-performance teams. In this chapter, we will explore the role of leadership in creating a culture of excellence, leadership styles for effective team management, and strategies for developing leadership skills for leading high-performance teams.
 

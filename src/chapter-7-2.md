@@ -1,5 +1,3 @@
-Change Management Models and Frameworks
-=============================================================================================
 
 Implementing change management strategies is essential for developing high-performance teams that can adapt to new challenges and opportunities. In this chapter, we will discuss the change management models and frameworks that can help managers implement change effectively.
 

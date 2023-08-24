@@ -1,5 +1,3 @@
-Chapter 4: Developing Performance Strategies
-============================================
 
 Developing performance strategies is critical for creating and sustaining a high-performance workplace team. In this chapter, we will explore strategies for understanding performance management, setting goals and expectations for team members, providing feedback and coaching for continuous improvement, and recognizing and rewarding performance.
 

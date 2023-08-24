@@ -1,5 +1,3 @@
-Communication Strategies for Effective Collaboration
-======================================================================================================
 
 Effective communication is critical for successful collaboration and achieving outstanding results in the workplace. In this chapter, we will explore communication strategies for effective collaboration.
 

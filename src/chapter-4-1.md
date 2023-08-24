@@ -1,5 +1,3 @@
-Understanding Performance Management
-==================================================================================
 
 Effective performance management is critical for driving high performance in the workplace. In this chapter, we will explore the key elements of performance management, including setting goals and objectives, providing regular feedback and coaching, and conducting performance evaluations.
 

@@ -1,5 +1,3 @@
-Understanding the Key Elements of an Effective Workplace Team
-======================================================================================
 
 An effective workplace team is critical for achieving outstanding results and creating a culture of collaboration and innovation in the workplace. In this chapter, we will introduce the key elements of an effective workplace team.
 

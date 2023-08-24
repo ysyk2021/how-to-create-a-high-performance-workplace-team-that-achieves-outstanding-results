@@ -1,5 +1,3 @@
-Chapter 8: Maintaining High-Performance Teams
-=============================================
 
 Maintaining a high-performance team is just as important as creating one. In this chapter, we will explore strategies for sustaining a high-performance team, identifying and addressing performance gaps, managing team dynamics and conflicts, and continuously improving team performance.
 

@@ -1,5 +1,3 @@
-Chapter 2: Defining High-Performance Teams
-==========================================
 
 Defining high-performance teams is critical for creating and sustaining a culture of excellence in the workplace. In this chapter, we will explore what high-performance teams are, their key characteristics, and the benefits they bring to organizations.
 

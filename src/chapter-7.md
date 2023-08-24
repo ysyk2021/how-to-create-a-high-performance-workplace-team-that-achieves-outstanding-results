@@ -1,5 +1,3 @@
-Chapter 7: Implementing Change Management Strategies
-====================================================
 
 Change is inevitable in the workplace, and implementing change management strategies is critical for creating and sustaining high-performance teams. In this chapter, we will explore the need for change in the workplace, change management models and frameworks, and strategies for implementing change management for high-performance teams.
 

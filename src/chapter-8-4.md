@@ -1,5 +1,3 @@
-Continuously improving team performance
-======================================================================================
 
 Maintaining a high-performance team is not only about achieving great results but also about continuously improving team performance. In this chapter, we will discuss the strategies that can help teams maintain their high level of performance and continuously improve.
 

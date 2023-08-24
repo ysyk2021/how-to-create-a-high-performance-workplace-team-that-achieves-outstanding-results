@@ -1,5 +1,3 @@
-Nurturing a Learning and Development Culture
-============================================================================================
 
 Building a high-performance culture involves more than just achieving outstanding results. It also requires nurturing a learning and development culture that supports continuous growth and improvement. In this chapter, we will discuss the strategies that managers can use to nurture a learning and development culture in their teams.
 

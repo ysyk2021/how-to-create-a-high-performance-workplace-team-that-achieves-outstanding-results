@@ -1,5 +1,3 @@
-The Role of Leadership in Building and Sustaining High-Performance Teams
-===================================================================================================================
 
 Effective leadership is critical for building and sustaining high-performance teams that achieve outstanding results. In this chapter, we will explore the role of leadership in building and sustaining high-performance teams.
 

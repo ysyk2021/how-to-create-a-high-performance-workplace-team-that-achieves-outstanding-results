@@ -1,5 +1,3 @@
-Developing Leadership Skills for Leading High-Performance Teams
-==========================================================================================================
 
 Leading a high-performance team requires a set of unique leadership skills. Effective leaders must be able to inspire, motivate, and guide their teams towards success. In this chapter, we will discuss the strategies that managers can use to develop their leadership skills for leading high-performance teams.
 

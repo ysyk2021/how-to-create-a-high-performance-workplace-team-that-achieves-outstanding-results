@@ -1,5 +1,3 @@
-Setting Goals and Expectations for Team Members
-=============================================================================================
 
 Setting clear goals and expectations for team members is critical for driving high performance in the workplace. In this chapter, we will explore strategies for setting effective goals and expectations, including aligning individual goals with organizational objectives, establishing SMART goals, and providing ongoing support and feedback.
 

@@ -1,5 +1,3 @@
-Overcoming Barriers to Collaboration
-======================================================================================
 
 Effective collaboration is critical for building high-performance teams that achieve outstanding results. However, there are several barriers that can hinder collaboration and prevent teams from reaching their full potential. In this chapter, we will discuss the common barriers to collaboration and strategies for overcoming them.
 

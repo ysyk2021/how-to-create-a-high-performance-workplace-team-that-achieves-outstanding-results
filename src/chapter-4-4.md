@@ -1,5 +1,3 @@
-Recognizing and Rewarding Performance
-===================================================================================
 
 Recognizing and rewarding performance is critical for driving high performance in the workplace. In this chapter, we will explore strategies for recognizing and rewarding outstanding performance, including offering verbal recognition, providing financial incentives, and offering opportunities for growth and development.
 

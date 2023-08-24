@@ -1,5 +1,3 @@
-What are High-Performance Teams?
-============================================================================
 
 High-performance teams are groups of individuals who work together towards a common goal, achieving outstanding results through effective collaboration and performance strategies. In this chapter, we will explore what high-performance teams are and what sets them apart from traditional teams.
 

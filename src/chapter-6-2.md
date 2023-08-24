@@ -1,5 +1,3 @@
-Leadership Styles for Effective Team Management
-==========================================================================================
 
 Effective team management is critical for achieving outstanding results and creating a high-performance workplace team. In this chapter, we will explore different leadership styles that can be used to effectively manage high-performance teams.
 

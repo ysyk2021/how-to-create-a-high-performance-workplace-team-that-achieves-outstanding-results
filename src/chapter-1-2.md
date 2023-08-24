@@ -1,5 +1,3 @@
-Why Creating a High-Performance Team is Important
-==========================================================================
 
 Creating a high-performance team is critical for achieving outstanding results and creating a culture of collaboration and innovation in the workplace. In this chapter, we will explore why creating a high-performance team is important.
 

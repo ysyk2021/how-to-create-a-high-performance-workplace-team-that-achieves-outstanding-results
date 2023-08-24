@@ -1,5 +1,3 @@
-Creating a Culture of Excellence
-================================================================================
 
 Creating a culture of excellence is critical for building a high-performance team that achieves outstanding results. When team members are committed to excellence, they are more likely to take ownership of their work, collaborate effectively, and continuously improve their performance. In this chapter, we will discuss the strategies that managers can use to create a culture of excellence in their teams.
 

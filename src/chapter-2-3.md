@@ -1,5 +1,3 @@
-Benefits of High-Performance Teams
-==============================================================================
 
 High-performance teams are critical for achieving outstanding results and creating a culture of collaboration and innovation in the workplace. In this chapter, we will explore the benefits of high-performance teams.
 

@@ -1,5 +1,3 @@
-Implementing Change Management Strategies for High-Performance Teams
-==========================================================================================================================
 
 Implementing change management strategies is essential for developing high-performance teams that can adapt to new challenges and opportunities. In this chapter, we will discuss the strategies that managers can use to implement change management effectively for their high-performance teams.
 

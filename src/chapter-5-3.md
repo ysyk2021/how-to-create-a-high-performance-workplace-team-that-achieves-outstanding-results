@@ -1,5 +1,3 @@
-Encouraging Innovation and Creativity
-=====================================================================================
 
 Innovation and creativity are essential components of building a high-performance culture. When team members are encouraged to think outside the box, they can develop new ideas and approaches that can lead to outstanding results. In this chapter, we will discuss the strategies that can help managers encourage innovation and creativity in their teams.
 
