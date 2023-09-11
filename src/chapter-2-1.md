@@ -1,5 +1,4 @@
-Chapter 1: What are High-Performance Teams?
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 High-performance teams are groups of individuals who consistently achieve exceptional results through effective collaboration, communication, problem-solving, and decision-making. These teams are characterized by a shared vision, common goals, and a commitment to excellence. They have high levels of trust, accountability, and mutual respect among team members.
 

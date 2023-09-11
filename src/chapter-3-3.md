@@ -1,5 +1,4 @@
-Chapter 11: Building Trust and Respect Among Team Members
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building trust and respect among team members is vital for creating a high-performance workplace team that achieves outstanding results. This chapter explores key strategies and practices for fostering trust and respect within a team, enabling effective collaboration and driving performance.
 

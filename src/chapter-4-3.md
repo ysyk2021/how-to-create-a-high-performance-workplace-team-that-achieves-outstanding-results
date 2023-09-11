@@ -1,5 +1,4 @@
-Chapter 8: Providing Feedback and Coaching for Continuous Improvement
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of providing feedback and coaching for continuous improvement within a high-performance workplace team. Effective feedback and coaching are essential tools that leaders can utilize to support the growth and development of team members, leading to improved performance and exceptional results.
 

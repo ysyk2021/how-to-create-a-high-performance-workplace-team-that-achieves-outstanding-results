@@ -1,5 +1,4 @@
-Chapter 12: Nurturing a Learning and Development Culture
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Nurturing a learning and development culture is crucial for creating a high-performance workplace team that consistently achieves outstanding results. This chapter explores key strategies and practices for fostering a culture of continuous learning and development within a team, enabling growth, innovation, and success.
 

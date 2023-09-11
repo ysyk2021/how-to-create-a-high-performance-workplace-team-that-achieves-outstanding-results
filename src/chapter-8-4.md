@@ -1,5 +1,4 @@
-Chapter 8: Continuously Improving Team Performance
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a high-performance workplace team, the pursuit of outstanding results does not end with initial success. It requires an unwavering commitment to continuously improve and raise the bar higher. This chapter explores the significance of continuous improvement in team performance and highlights effective strategies and practices for achieving ongoing excellence.
 

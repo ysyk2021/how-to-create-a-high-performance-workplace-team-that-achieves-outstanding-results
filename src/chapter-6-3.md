@@ -1,5 +1,4 @@
-Chapter 8: Developing Leadership Skills for Leading High-Performance Teams
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential leadership skills required to lead high-performance teams effectively. Building a strong and cohesive team that consistently achieves outstanding results requires leaders who can inspire, motivate, and empower their team members. By developing these leadership skills, you can cultivate an environment of collaboration, innovation, and continuous improvement.
 

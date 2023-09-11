@@ -1,5 +1,4 @@
-Chapter 10: Managing Team Dynamics and Conflicts
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In any workplace team, managing team dynamics and conflicts is essential to maintain a harmonious and productive environment. This chapter explores effective strategies for managing team dynamics and resolving conflicts to create a high-performance workplace team that achieves outstanding results through effective collaboration.
 

@@ -1,5 +1,4 @@
-Chapter 8: Communication Strategies for Effective Collaboration
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication is the backbone of successful collaboration within a high-performance workplace team. This chapter explores key communication strategies that foster collaboration, promote understanding, and drive outstanding results.
 

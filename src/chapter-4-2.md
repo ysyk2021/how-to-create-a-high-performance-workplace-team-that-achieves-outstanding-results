@@ -1,5 +1,4 @@
-Chapter 9: Setting Goals and Expectations for Team Members
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting clear goals and expectations is a fundamental aspect of creating a high-performance workplace team that consistently achieves outstanding results through effective collaboration and performance strategies. This chapter explores the importance of goal setting and provides strategies for establishing meaningful goals and expectations for team members.
 

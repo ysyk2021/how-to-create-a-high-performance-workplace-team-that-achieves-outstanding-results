@@ -1,5 +1,4 @@
-Chapter 3: Characteristics of High-Performance Teams
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 High-performance teams possess distinct characteristics that set them apart from other teams. These characteristics drive their ability to achieve outstanding results through effective collaboration and performance strategies. In this chapter, we will delve into the key characteristics that define high-performance teams.
 

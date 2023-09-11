@@ -1,5 +1,4 @@
-Chapter 2: Benefits of High-Performance Teams
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 High-performance teams offer numerous benefits to organizations that go beyond achieving outstanding results. These teams contribute to organizational success, employee satisfaction, and overall excellence. In this chapter, we will explore the key benefits that high-performance teams bring to the workplace.
 

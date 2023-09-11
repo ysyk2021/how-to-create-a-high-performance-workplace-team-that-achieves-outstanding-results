@@ -1,5 +1,4 @@
-Chapter 9: Implementing Change Management Strategies for High-Performance Teams
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Implementing change within a high-performance workplace team requires careful planning and effective change management strategies. This chapter explores key strategies for successfully implementing change and fostering a culture of adaptability and continuous improvement within high-performance teams.
 

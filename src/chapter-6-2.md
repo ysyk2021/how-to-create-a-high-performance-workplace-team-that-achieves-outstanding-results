@@ -1,5 +1,4 @@
-Chapter 4: Leadership Styles for Effective Team Management
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various leadership styles that contribute to effective team management. A leader's style can greatly impact a team's success, productivity, and overall performance. Understanding different leadership approaches allows managers to adapt their style to the needs of their team, fostering collaboration and achieving outstanding results.
 

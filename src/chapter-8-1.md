@@ -1,5 +1,4 @@
-Chapter 11: Strategies for Sustaining a High-Performance Team
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Sustaining a high-performance team is not a one-time effort but an ongoing process that requires continuous attention and dedication. In this chapter, we will explore strategies that can help maintain the success of a high-performance team over the long term, ensuring consistent outstanding results and effective collaboration.
 

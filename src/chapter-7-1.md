@@ -1,5 +1,4 @@
-Chapter 5: Understanding the Need for Change in the Workplace
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Change is a constant in today's fast-paced work environment. To create a high-performance workplace team that achieves outstanding results, it is essential to understand the need for change and embrace it as an opportunity for growth and improvement. This chapter explores the importance of change in the workplace and strategies to navigate and adapt to it effectively.
 

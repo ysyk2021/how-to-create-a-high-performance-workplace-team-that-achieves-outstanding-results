@@ -1,5 +1,4 @@
-Chapter 7: Understanding Performance Management
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the concept of performance management and its role in creating a high-performance workplace team. Performance management is a process that involves setting clear expectations, providing feedback, and supporting employees in achieving their goals. By effectively managing and improving individual and team performance, organizations can achieve outstanding results through effective collaboration and performance strategies.
 

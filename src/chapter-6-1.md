@@ -1,5 +1,4 @@
-Chapter 8: The Role of Leadership in Building and Sustaining High-Performance Teams
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the critical role of leadership in building and sustaining high-performance teams. Effective leaders play a pivotal role in creating an environment that fosters collaboration, innovation, and exceptional performance. By understanding and fulfilling their responsibilities, leaders can inspire and develop their team members, leading to sustained success.
 

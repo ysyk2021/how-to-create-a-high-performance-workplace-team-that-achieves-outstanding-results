@@ -1,5 +1,4 @@
-Chapter 10: Creating a Culture of Excellence
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A culture of excellence is essential for creating a high-performance workplace team that consistently achieves outstanding results. This chapter explores key strategies and practices for fostering a culture of excellence within a team, where collaboration, innovation, and continuous improvement are embraced.
 

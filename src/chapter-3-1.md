@@ -1,5 +1,4 @@
-Chapter 7: The Importance of Collaboration in Achieving Outstanding Results
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Collaboration is the fuel that ignites outstanding results within a high-performance workplace team. In today's complex and fast-paced business landscape, no individual can achieve greatness alone. This chapter explores the significance of collaboration and highlights how it drives exceptional performance and yields remarkable outcomes.
 

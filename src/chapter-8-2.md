@@ -1,5 +1,4 @@
-Chapter 9: Identifying and Addressing Performance Gaps
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In any workplace team, identifying and addressing performance gaps is crucial to maintaining a high level of productivity and achieving outstanding results. This chapter explores effective strategies for identifying performance gaps within a team and provides insights on how to address them.
 

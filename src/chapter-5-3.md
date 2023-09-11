@@ -1,5 +1,4 @@
-Chapter 4: Encouraging Innovation and Creativity
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Innovation and creativity are vital for high-performance workplace teams to achieve outstanding results. This chapter explores strategies and approaches to foster innovation and creativity within teams, enabling them to excel in their collaboration and performance.
 

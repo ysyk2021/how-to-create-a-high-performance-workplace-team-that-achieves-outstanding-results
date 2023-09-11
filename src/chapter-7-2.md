@@ -1,5 +1,4 @@
-Chapter 8: Change Management Models and Frameworks
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Achieving outstanding results and creating a high-performance workplace team often requires navigating through various changes. Change management models and frameworks provide valuable guidance and strategies for successfully implementing and managing change within teams. This chapter explores some popular change management models and frameworks that can help organizations and teams adapt and thrive in dynamic environments.
 

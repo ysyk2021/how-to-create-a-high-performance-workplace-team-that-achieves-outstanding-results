@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Barriers to Collaboration
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Collaboration is a cornerstone of creating a high-performance workplace team that achieves outstanding results. However, there are various barriers that can hinder effective collaboration. This chapter explores common barriers to collaboration and provides strategies to overcome them, ensuring seamless teamwork and improved performance.
 
